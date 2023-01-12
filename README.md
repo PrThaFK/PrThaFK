@@ -1,3 +1,5 @@
+<img src="https://raw.githubusercontent.com/PrThaFK/PrThaFK/main/winter_winlove.gif" width="250" />
+
 - 👋 Hi, I’m @PrThaFK
 - 💞️ I’m interested in nong winter from aespa
 - 📫 You can talk with me everything.
