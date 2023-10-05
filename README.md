@@ -1,4 +1,4 @@
-<img src="https://raw.githubusercontent.com/PrThaFK/PrThaFK/main/ezgif-3-91b0039f92.gif" width="250" />
+<img src="https://raw.githubusercontent.com/PrThaFK/PrThaFK/main/ezgif.com-optimize.gif" width="250" />
 
 - 👋 Hi, I’m @PrThaFK
 - 💞️ I’m interested in nong winter from aespa
